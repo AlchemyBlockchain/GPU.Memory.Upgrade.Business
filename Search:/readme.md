@@ -1,0 +1,2 @@
+- https://www.youtube.com/results?search_query=nvidia+memory+upgrade+mod
+- https://www.youtube.com/results?search_query=nvidia+3070+16+gb+mod
